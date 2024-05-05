@@ -1,7 +1,7 @@
 # my portfolio
 
 
-Hello! I'm Vetrivel M, This is my portfolio, I invite you to explore a collection of my work that 
+Hello! I'm Yegneshwaran B, This is my portfolio, I invite you to explore a collection of my work that 
 showcases my skills, creativity, and commitment to excellence.
 
 
